@@ -1,1 +1,0 @@
-# Huang_Yinzhu_102305711_Programmierung-mit-CC-_Aufgabe2_P2_A
